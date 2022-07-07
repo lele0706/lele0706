@@ -1,6 +1,6 @@
 - 👋 oi eu sou Leticia
 - 👀 tenho interesse em aprimorar meus conhecimentos nessa materia.
-- 🌱 I’m currently learning ...
+- 🌱 
 - 💞️ 
 - 📫 
 
